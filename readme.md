@@ -1,4 +1,5 @@
 Today is my birthday. 
+I live in Dnipro. 
 I am 47-years woman that wants to change owm way.
 Now I am an accounter, but I don't want to be as one.
 Last week i have been in Gorgany. Once an year i ussually go to mountains with a backpack.
